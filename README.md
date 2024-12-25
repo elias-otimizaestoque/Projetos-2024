@@ -2,6 +2,7 @@
 
 ![sysadmin-isometric-illustration-vector](https://github.com/user-attachments/assets/fb2f2a80-2b18-46d5-8190-250a0f18d713)
 
+![img1 (1)](https://github.com/user-attachments/assets/392543a6-06f2-4335-9444-a83ab0d1957d)
 
 ## 🌟 **Experiência e Expertise em Áreas Estratégicas**
 
