@@ -208,3 +208,46 @@ Cada projeto documentado aqui é uma evidência do impacto direto e **mensuráve
 🔹 **Resultados concretos** através da **integração de IA e Automação**.
 🔹 **Consultoria estratégica** focada em **resultados mensuráveis**.
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
