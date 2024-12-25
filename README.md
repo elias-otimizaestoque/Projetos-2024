@@ -1,9 +1,5 @@
 # 🚀 Elias Andrade - Especialista em Inovação, Automação e Tecnologia para Logística e TI 💡
 
-![IMG_20240212_120048](https://github.com/user-attachments/assets/f3516929-e4af-4718-9879-5fcce78a04ec)
-
-![0bbf6cb04a342a48](https://github.com/user-attachments/assets/391612cd-1345-4358-91c3-2edb740b7ba1)
-
 ![sysadmin-isometric-illustration-vector](https://github.com/user-attachments/assets/fb2f2a80-2b18-46d5-8190-250a0f18d713)
 
 
@@ -316,12 +312,31 @@ Cada projeto documentado aqui é uma evidência do impacto direto e **mensuráve
 
 
 --
+![IMG_20240212_120048](https://github.com/user-attachments/assets/f3516929-e4af-4718-9879-5fcce78a04ec)
+
+![0bbf6cb04a342a48](https://github.com/user-attachments/assets/391612cd-1345-4358-91c3-2edb740b7ba1)
+
+![IMG_20240212_104255](https://github.com/user-attachments/assets/7a09859d-81c7-4c68-85e4-b3f13f8ce57a)
+
+![infinity-3614410_1920-1-1600x1000](https://github.com/user-attachments/assets/4f3657ae-5f67-418d-b793-4e5cb8fb43cd)
+
+![UC-5a0ef873-72db-4632-b593-8b53674122e0](https://github.com/user-attachments/assets/592c7a6d-079f-4295-848c-3bc5b8c21169)
+
+![IMG_20240217_224939](https://github.com/user-attachments/assets/2bdea2ee-795a-4ebe-9b60-fbd392404d5e)
+
+![chrome_goMI8KpbvX](https://github.com/user-attachments/assets/8248570f-b1de-4391-b467-79c73f335f55)
+
+![chrome_NtbiH59Cly](https://github.com/user-attachments/assets/849e040f-8ef9-4e38-be75-0dac373feeaf)
 
 
+![chrome_bYuZ34DSdV](https://github.com/user-attachments/assets/15f76a98-5928-45c3-a587-f01ad7e4a902)
+![chrome_oTrnhEbW12](https://github.com/user-attachments/assets/b733b2bc-2dfb-40dd-abdf-faa3b308e881)
+![chrome_GcPrdHvLjS](https://github.com/user-attachments/assets/ccfbb1f5-d376-47c8-a047-1ca91cf239ac)
 
-
-
-
+![_d20a3295-27b8-4901-996d-e8bdfbb41d2d](https://github.com/user-attachments/assets/d3c2b051-20c2-4d82-94f0-8150fc5cae68)
+![_44167d01-0bab-4174-be03-1bb07165ca8a](https://github.com/user-attachments/assets/131c599d-60ac-4b84-b170-8083d561103d)
+![_26ac3bef-8218-4f1e-91ee-f788f0cbe61c](https://github.com/user-attachments/assets/03b34895-8d69-46df-81ab-5b881da8db3c)
+![_e618580e-fe25-4d2c-887f-837e1068c015](https://github.com/user-attachments/assets/6492e41c-de95-4368-8cd2-f3a05b99a598)
 
 
 
