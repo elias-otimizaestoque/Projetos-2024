@@ -7,6 +7,48 @@
 [![Badge de ML](https://img.shields.io/badge/Machine%20Learning-Advanced-green)](https://scikit-learn.org/)  
 [![Badge de Project Management](https://img.shields.io/badge/Project%20Management-Strategic-blue)](https://www.pmi.org/)
 
+## 🚀 **Elias Andrade - Especialista em Inovação e Automação pra estoque, compra e logistica com expertise em projetos de TI e infraestrutura**
+
+### 📊 **Informações Profissionais e Salariais**
+
+| **Categoria**                  | **Detalhes**                                             |
+|---------------------------------|---------------------------------------------------------|
+| 💼 **Área de Atuação**          | **Consultoria**, **Serviços** de **Automação** e **Tecnologia**, **Projetos Estratégicos** de **IA**, **ML** e **Automação** |
+| 💻 **Habilidades**              | **Inteligência Artificial**, **Automação de Processos**, **Gestão de Estoques**, **Desenvolvimento de Sistemas**, **Machine Learning** |
+| 📈 **Tipos de Projetos**        | **Consultoria**, **Desenvolvimento de Sistemas**, **Transformação Digital**, **Otimização de Processos**, **Redução de Custos** |
+| 💼 **Busca**                    | **Projetos**, **Parcerias de Trabalho**, **Consultoria Estratégica**, **Desafios em Automação e IA** |
+| 💸 **Salário CLT**              | R$ **4.100,00** |
+| 💸 **Salário PJ**               | R$ **5.100,00** |
+| 📱 **Contato**                  | **WhatsApp**: [11 9 1335 3137](https://wa.me/55119913353137) |
+
+---
+
+### 🔧 **Meu Perfil Profissional**:
+
+Sou um **especialista em inovação e automação** com mais de 6 anos de experiência em **tecnologia**, **inteligência artificial (IA)** e **automação de processos**. Minha abordagem é focada em **resultados reais** e **impacto positivo**, gerando **eficiência operacional**, **redução de custos** e **otimização de processos**.
+
+- **Transformação Digital**: Busco constantemente **modernizar e otimizar processos** nas áreas de **gestão de estoques**, **compras**, **supply chain** e **auditoria**.
+- **Consultoria Estratégica**: Ofereço soluções personalizadas de **consultoria**, ajudando empresas a **implementar sistemas integrados** e automatizados para **reduzir custos** e **aumentar a produtividade**.
+- **Autonomia de Criação**: Não busco posições de liderança, mas sim **autonomia** para **criar** e **implementar** soluções inovadoras e de alto impacto.
+
+---
+
+### 🌟 **O Potencial das Empresas com Meu Trabalho**:
+
+Empresas que **buscam evolução constante** e **transformação digital** se beneficiam enormemente ao contar com um profissional como eu. **Minhas soluções** são voltadas para a **redução de custos**, **aumento de produtividade** e **melhoria contínua**. **Automatização** de processos, **integração de IA** e **sistemas personalizados** são algumas das formas que utilizo para gerar **valor real** para os meus clientes.
+
+Se sua empresa está em busca de **inovação** e **eficiência**, **otimização de processos**, ou **consultoria estratégica**, podemos formar uma parceria para **atingir resultados concretos** e **sustentáveis**.
+
+---
+
+### 📞 **Vamos Conversar?**
+
+Estou aberto a **novos projetos**, **parcerias** e **consultorias**. Se você tem **desafios** ou **projetos** em que **automação**, **IA** e **otimização de processos** são necessários, entre em contato comigo:
+
+📱 **WhatsApp**: [11 9 1335 3137](https://wa.me/55119913353137)
+
+🌍 **Transforme seus processos e alavanque seus resultados com soluções inovadoras e eficazes!**
+
 
 ## 👤 **Sobre Mim - Perfil Profissional e Valor que Agrego**
 
