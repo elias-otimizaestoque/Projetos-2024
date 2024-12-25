@@ -272,9 +272,13 @@ Estou **disponível para colaborar** em projetos de **automação**, **gestão d
 
 ---
 
-## 📊 **Provas do Meu Conhecimento e Realizações**
 
-Abaixo, você encontrará **numerosos prints**, **informações detalhadas sobre projetos**, **criações** e **ferramentas** utilizadas que demonstram minha **expertise** e as **realizações concretas** ao longo da minha trajetória. Estes projetos e resultados refletem minha capacidade de implementar soluções eficazes e **inovadoras**, além de mostrar as **ferramentas** que utilizo para **transformar** e **otimizar processos** em áreas como **gestão de estoques**, **compras**, **supply chain** e **automação de processos**.
+![CERTIFICADO ITIL FOUNDATION ELIAS 2012](https://github.com/user-attachments/assets/e1e7a73a-a36e-4d84-812e-bcf961f23c06)
+
+![explorer_8WBGSYTB1e](https://github.com/user-attachments/assets/6cbed26d-473f-4863-ab11-a13411780623)
+
+![explorer_0FBHx869m6](https://github.com/user-attachments/assets/e2d46f69-31ac-4b1b-a467-f1ef3cf066df)
+
 
 ---
 
@@ -311,6 +315,13 @@ Cada projeto documentado aqui é uma evidência do impacto direto e **mensuráve
 🔹 **Resultados concretos** através da **integração de IA e Automação**.
 🔹 **Consultoria estratégica** focada em **resultados mensuráveis**.
 
+![23092013](https://github.com/user-attachments/assets/cba268fd-2f0c-46f7-ad09-935aa614613a)
+
+
+## 📊 **Provas do Meu Conhecimento e Realizações**
+
+Abaixo, você encontrará **numerosos prints**, **informações detalhadas sobre projetos**, **criações** e **ferramentas** utilizadas que demonstram minha **expertise** e as **realizações concretas** ao longo da minha trajetória. Estes projetos e resultados refletem minha capacidade de implementar soluções eficazes e **inovadoras**, além de mostrar as **ferramentas** que utilizo para **transformar** e **otimizar processos** em áreas como **gestão de estoques**, **compras**, **supply chain** e **automação de processos**.
+
 
 --
 ![IMG_20240212_120048](https://github.com/user-attachments/assets/f3516929-e4af-4718-9879-5fcce78a04ec)
@@ -339,17 +350,56 @@ Cada projeto documentado aqui é uma evidência do impacto direto e **mensuráve
 ![_26ac3bef-8218-4f1e-91ee-f788f0cbe61c](https://github.com/user-attachments/assets/03b34895-8d69-46df-81ab-5b881da8db3c)
 ![_e618580e-fe25-4d2c-887f-837e1068c015](https://github.com/user-attachments/assets/6492e41c-de95-4368-8cd2-f3a05b99a598)
 
+![chrome_mGH7pTJ5Q1](https://github.com/user-attachments/assets/41e9e746-488b-453d-859f-e06c95c6ba12)
+![chrome_wXypUTEhvt](https://github.com/user-attachments/assets/b014e918-3216-4768-846c-bfe9a4a22f8e)
+![chrome_BVHTHml6Oq](https://github.com/user-attachments/assets/ad2e0bc8-37ed-49d4-b613-fd9f57f700dd)
+![chrome_GdDoxKcYkE](https://github.com/user-attachments/assets/c7c88436-116c-4143-8eb7-e11a9e90b98e)
 
+![20170801_153156](https://github.com/user-attachments/assets/17a8a8f2-326a-46b7-918d-b630ce1608f2)
 
+![20170123_164817](https://github.com/user-attachments/assets/3919abdb-4cc5-4c96-8735-02201c9b6265)
 
+![Release_2308_Fig1_MyHome](https://github.com/user-attachments/assets/f3ad52d8-4af1-4b3f-90b4-e680d8e65b1c)
 
+![14_Added_Card_from_Overview_Page](https://github.com/user-attachments/assets/788f3c5a-82f8-485a-8916-53775da3ee72)
 
+![product-tour-finance-step-3](https://github.com/user-attachments/assets/fae6a84f-c0cc-4bae-9f6f-0aef5cf2e217)
 
+![SumatraPDF_f7mdYXoG2L](https://github.com/user-attachments/assets/94b26317-5c85-41d7-97a1-1fc46b72b65f)
 
+![python_rzaX9wsQsa](https://github.com/user-attachments/assets/96f797a1-0b29-4ec5-8813-e7b6b42c9742)
 
+![ai_artificial_intelligence_robot_chip_brain_technology_icon_179495](https://github.com/user-attachments/assets/6ab7ed36-c5d2-43d1-a88d-bb6441b41b1e)
 
+![dwm_16uOxYy9U1](https://github.com/user-attachments/assets/109a166c-8c90-4ace-9124-06a8a1d96b3b)
 
+![PROJETO V1](https://github.com/user-attachments/assets/5bda731a-19bf-4cce-b1dc-a1d0924440c3)
 
+![projeto smart retail esboço](https://github.com/user-attachments/assets/d81e6380-3597-4b22-b66d-0293544874ce)
+
+![python_KsENHKkKOa](https://github.com/user-attachments/assets/0e0bbab3-e77e-47ab-ba63-e93e83eed940)
+
+<img width="528" alt="chrome_h96r5URBVc" src="https://github.com/user-attachments/assets/ae54714d-f789-4712-bd00-025257289f38" />
+
+<img width="532" alt="chrome_TgUy99TF7C" src="https://github.com/user-attachments/assets/9cb9eedc-5de9-44c0-b6ff-4a105baee7d2" />
+
+<img width="429" alt="chrome_b0mX4jWVNJ" src="https://github.com/user-attachments/assets/598f84b1-125f-4a3b-b9f0-d3f852b4750a" />
+
+![how-the-cnn-works](https://github.com/user-attachments/assets/fac791d5-30d5-4fe2-884c-a4c396b45ea6)
+
+![1_3BRLw4lsANPEfGgimG3YVQ](https://github.com/user-attachments/assets/d9cd9b1a-d6b6-41a8-beab-a13a10dde46d)
+
+![chrome_lG1W7PGnnV](https://github.com/user-attachments/assets/25715aef-14c0-4119-85b1-6d0c576d2147)
+
+![screencapture-foxter-monitoring-konecty-cloud-d-a164a7f0339f99e89cea5cb47e9be617-kubernetes-compute-resources-workload-2024-05-13-11_46_54](https://github.com/user-attachments/assets/3706b1dc-321a-4634-8529-8958e8b1984d)
+![screencapture-foxter-monitoring-konecty-cloud-d-cdkyhjzop2o74c-node-exporter-nodes-2024-05-13-11_51_12](https://github.com/user-attachments/assets/ca7e0abf-691a-4524-983d-57dd653e4bcb)
+![screencapture-foxter-monitoring-konecty-cloud-d-09ec8aa1e996d6ffcd6817bbaff4db1b-kubernetes-api-server-2024-05-13-14_11_41](https://github.com/user-attachments/assets/46ea45b6-9777-409b-9934-1e3f0900ced6)
+
+![chrome_4OXBQ19uDt](https://github.com/user-attachments/assets/8b534307-6397-4066-af26-fefc09db0c7e)
+
+![chrome_tezAtGNRtU](https://github.com/user-attachments/assets/3020dbdc-7ba0-4df8-ac45-449119103cec)
+
+<img width="1003" alt="K8Studio_bfJrKtJwBf" src="https://github.com/user-attachments/assets/73c58533-ba25-4a94-a7ad-da9f91e3e8bc" />
 
 
 
