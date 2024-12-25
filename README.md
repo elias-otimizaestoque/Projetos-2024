@@ -1,5 +1,12 @@
 # 🚀 Elias Andrade - Especialista em Inovação, Automação e Tecnologia para Logística e TI 💡
 
+![IMG_20240212_120048](https://github.com/user-attachments/assets/f3516929-e4af-4718-9879-5fcce78a04ec)
+
+![0bbf6cb04a342a48](https://github.com/user-attachments/assets/391612cd-1345-4358-91c3-2edb740b7ba1)
+
+![sysadmin-isometric-illustration-vector](https://github.com/user-attachments/assets/fb2f2a80-2b18-46d5-8190-250a0f18d713)
+
+
 ## 🌟 **Experiência e Expertise em Áreas Estratégicas**
 
 - [![Experiência com Python](https://img.shields.io/badge/Python-3.10-blue)](https://www.python.org/) Desenvolvimento avançado de sistemas e automação com Python, aplicando soluções de **integração de sistemas** e **otimização de processos**.
@@ -301,12 +308,14 @@ Abaixo, você encontrará **numerosos prints**, **informações detalhadas sobre
 
 ### 🚀 **O Impacto Real de Nossas Colaborações**
 
-Cada projeto documentado aqui é uma evidência do impacto direto e **mensurável** que tenho gerado nas empresas e equipes com as quais trabalho. Se você quer ver como as **tecnologias mais avançadas** podem transformar processos, melhorar a **eficiência operacional**, reduzir custos e proporcionar **autonomia** nas soluções, entre em contato para discutir como podemos colaborar.
+Cada projeto documentado aqui é uma evidência do impacto direto e **mensurável** que tenho gerado nas empresas que passei e para parceiros em projetos, agregando valor para operação e e equipes com as quais trabalhei e trabalho. Se você quer ver como as **tecnologias mais avançadas** podem transformar processos, melhorar a **eficiência operacional**, reduzir custos e proporcionar **autonomia** nas soluções, entre em contato para discutir como podemos colaborar.
 
 🔹 **Transformação Digital e Inovação** em tempo real. 
 🔹 **Resultados concretos** através da **integração de IA e Automação**.
 🔹 **Consultoria estratégica** focada em **resultados mensuráveis**.
 
+
+--
 
 
 
