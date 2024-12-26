@@ -670,5 +670,3 @@ Abaixo, você encontrará **numerosos prints**, **informações detalhadas sobre
 
 
 
-
-
