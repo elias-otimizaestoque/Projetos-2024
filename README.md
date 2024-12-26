@@ -564,6 +564,25 @@ Abaixo, você encontrará **numerosos prints**, **informações detalhadas sobre
 ![chrome_nKmn5QxXab](https://github.com/user-attachments/assets/d9289fd2-3863-4a58-ba62-dedff516d7db)
 
 
+![diagram-export-26-07-2024-20_11_36](https://github.com/user-attachments/assets/258a0c5a-f63f-4ef3-a6ac-e546e209e102)
+![diagram-export-26-07-2024-20_15_48](https://github.com/user-attachments/assets/7a10651a-b82d-47ee-8a88-b89d01f85264)
+![diagram-export-26-07-2024-20_27_18](https://github.com/user-attachments/assets/cd05531d-c2ad-42e3-b766-b5070d504dad)
+![chrome_XwqWg3JAWf](https://github.com/user-attachments/assets/265720f1-e310-4e9b-b7c7-419c9a4da129)
+![chrome_LX2Qv94tRq](https://github.com/user-attachments/assets/b86fdcc9-1d7c-4055-a1ff-20431c5cf888)
+![chrome_Jz1qPOsu1j](https://github.com/user-attachments/assets/a1af20c3-a259-4bfb-84e1-0e734ed9aeb2)
+![chrome_y79nTDE3sr](https://github.com/user-attachments/assets/72cea3a1-c00e-46ba-b970-a67e2a9bbd92)
+![chrome_5QtbfInyhu](https://github.com/user-attachments/assets/5fb45bcb-99a4-40ab-b014-58e5724c67fc)
+![screencapture-localhost-8504-2024-07-26-23_27_11](https://github.com/user-attachments/assets/9c28cb84-0373-4b16-9f29-bb31b0fda8e8)
+![chrome_vu7L0WbOG9](https://github.com/user-attachments/assets/16d12712-8e84-48ea-8b15-23cb14f63c4b)
+![chrome_WrKMfc0U6I](https://github.com/user-attachments/assets/afb84ef5-8bd4-4151-88a3-c4a34e0fc53f)
+![chrome_3M2iuMmTUh](https://github.com/user-attachments/assets/68dd9e8a-99e9-4e25-a45c-54a69d2742cb)
+![chrome_FTdBxUwyJg](https://github.com/user-attachments/assets/6aa2d9be-4a61-4340-89a2-8254b02ab25b)
+![chrome_HwooUq8uLF](https://github.com/user-attachments/assets/81854d8a-b653-43a9-ad0f-c145c12b3625)
+![chrome_UyWJx4xkKm](https://github.com/user-attachments/assets/429e407c-6bfc-493f-a9c6-c667fba9458a)
+![chrome_bqfTND55nj](https://github.com/user-attachments/assets/a1a8ee10-ebf2-4fed-bef0-9d4579b347f7)
+![chrome_whQvppgYgs](https://github.com/user-attachments/assets/f09e84e9-41df-4d7d-b85d-18af1929ab19)
+![_80ffbc90-52de-46d4-bbe1-0bd5953efc3f](https://github.com/user-attachments/assets/f6c4a284-8486-413b-a6d4-c954a3f2fe45)
+![_d90ab607-f64e-42bf-85ee-3a5bc170030e](https://github.com/user-attachments/assets/caba86ca-871c-4f15-a5e6-982400a23c36)
 
 
 
