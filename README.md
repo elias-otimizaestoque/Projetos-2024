@@ -584,17 +584,113 @@ Abaixo, você encontrará **numerosos prints**, **informações detalhadas sobre
 ![_80ffbc90-52de-46d4-bbe1-0bd5953efc3f](https://github.com/user-attachments/assets/f6c4a284-8486-413b-a6d4-c954a3f2fe45)
 ![_d90ab607-f64e-42bf-85ee-3a5bc170030e](https://github.com/user-attachments/assets/caba86ca-871c-4f15-a5e6-982400a23c36)
 
+![_1bfe0e36-e4af-4619-b43a-cbc69652d4dc](https://github.com/user-attachments/assets/d027a8e4-7e4c-4128-a02d-341f26427a6c)
+![_e5137c35-8bc6-4d5e-95b4-0c0d76f751e6](https://github.com/user-attachments/assets/e309c402-c3be-446e-b07f-1bfc3b0643e3)
+![chrome_4j97rcrLEn](https://github.com/user-attachments/assets/6545aef3-80f1-46e8-a981-a43a6a9e76fd)
+![chrome_JvQjZyU6Ms (1)](https://github.com/user-attachments/assets/488bbc68-1237-4044-b049-95bc7792d699)
+![chrome_JvQjZyU6Ms](https://github.com/user-attachments/assets/79d65692-91c9-4b8d-96d6-256596db42f2)
+![chrome_60q7HGN6kU](https://github.com/user-attachments/assets/224944b0-a36a-4864-9812-56c0395b7b19)
+![chrome_Vyl8xndY6O](https://github.com/user-attachments/assets/4e39a1ba-adc6-4efe-8374-d27bfb0726a8)
+![chrome_3GiUVtQBsp](https://github.com/user-attachments/assets/a47ca818-bab9-405c-8773-94b201d266b3)
+![chrome_soKxwSu1hi](https://github.com/user-attachments/assets/952c1b70-c5b6-4348-8c55-d4c1f014a88d)
+![chrome_uB8ASauPo9](https://github.com/user-attachments/assets/a685a033-2c4b-429b-975c-b23450e4e632)
+![chrome_H5wdMTWrxB](https://github.com/user-attachments/assets/01033f91-293b-4a38-89ab-7ed8908d8099)
+![chrome_K4LwUXen5r](https://github.com/user-attachments/assets/60529d26-a8f5-4586-a3e7-908bacd96217)
+![chrome_gNZr183xxG](https://github.com/user-attachments/assets/bba17518-88a0-44ba-a368-5f12092eec5a)
+![chrome_NoXwNUMfBc](https://github.com/user-attachments/assets/a09339e7-0663-493e-a3cd-7a64c8ba6a1a)
+![chrome_okH6cCbU4j](https://github.com/user-attachments/assets/97842bdf-878e-4e65-b9d7-df0d2b590219)
+![chrome_GCNmupnJNi](https://github.com/user-attachments/assets/016b6ac2-13c0-4d26-99d3-ceba4d5543ec)
+![chrome_qx8LMRZQ48](https://github.com/user-attachments/assets/9e89c416-29b8-466a-a984-57739cbf0e96)
+![chrome_wDPcMyhw0k](https://github.com/user-attachments/assets/dd9da8f6-2685-45e4-8af5-1dd45993e696)
+![chrome_VcEZyrapgW](https://github.com/user-attachments/assets/1f7c6b03-2136-468c-8b72-c747f0d7cdbb)
+![chrome_QOe2vHXcQW](https://github.com/user-attachments/assets/5ee17e92-2926-4600-8bfe-72e72e536483)
+![chrome_KXABlBqJdo](https://github.com/user-attachments/assets/492e72bd-ff8b-4e97-9dc7-ed092dd41c26)
+![chrome_zE9idLgF8P](https://github.com/user-attachments/assets/cc3782c4-3065-4fdf-974b-80317f1f7f6e)
+![chrome_xZmyF6touL](https://github.com/user-attachments/assets/b05b540d-35dc-46b6-a9a9-e426c054c73e)
+![chrome_TiSJu8nu27](https://github.com/user-attachments/assets/09c7a1e5-e976-407d-9bcf-cea9186f0425)
+![chrome_jLZpxctOjv](https://github.com/user-attachments/assets/b3ef1f50-c4a8-4cd1-88f6-a0096120da7d)
+![thunderbird_qkBaOLIPWY](https://github.com/user-attachments/assets/c4677eeb-38f6-4a50-a2a4-e191f7c97faa)
+![thunderbird_W6AJEixsCC](https://github.com/user-attachments/assets/e00058d4-26b3-43aa-90a6-fab03a213f20)
+![thunderbird_HF4QCxdybt](https://github.com/user-attachments/assets/87424816-a580-49fb-884f-f48c614b6b57)
+![thunderbird_aZSdLmxQl8](https://github.com/user-attachments/assets/3f9f8c94-6dcd-4ca3-b144-92658d4c1ca5)
+![chrome_Mz2fHqhmZL](https://github.com/user-attachments/assets/8622a106-41bc-4e40-b7d7-82f129337a67)
+![chrome_Re95xpexAM](https://github.com/user-attachments/assets/3821305c-fbd4-49d6-93cc-6e8e348e7f85)
+<img width="550" alt="chrome_v6OlMDy2MY" src="https://github.com/user-attachments/assets/f886ae12-c193-47ba-a9c3-4cdc87e21a59" />
+<img width="544" alt="chrome_sAT4tyaDlB" src="https://github.com/user-attachments/assets/7f443b05-b16b-4e1b-adb4-eff580ac7f6a" />
+<img width="559" alt="chrome_JC2GHlgcZj" src="https://github.com/user-attachments/assets/06558eb4-3d56-46f9-bb88-c83bce87d9c1" />
+<img width="513" alt="chrome_tB38gn857f" src="https://github.com/user-attachments/assets/edf4fdb2-e5cf-4fc9-9737-ad5212104b51" />
+<img width="670" alt="chrome_H3DRe4go2h" src="https://github.com/user-attachments/assets/b407184f-dbe6-4646-9a01-c44cd75a8f80" />
+<img width="661" alt="chrome_HTLQ1ozFhI" src="https://github.com/user-attachments/assets/c116eea7-8792-49d3-b4bc-2b2dd552371d" />
+<img width="615" alt="chrome_USjzcFNHS4" src="https://github.com/user-attachments/assets/b3aed207-3fa9-4548-a7e8-3857d1ae01a3" />
+<img width="580" alt="chrome_mG8RWM7vt0" src="https://github.com/user-attachments/assets/fe79dc90-40fd-4f94-b3a9-4bdab986c018" />
+<img width="560" alt="chrome_0qICpyyvLS" src="https://github.com/user-attachments/assets/8f736934-6b64-4ad3-96ec-9f762d6da101" />
+<img width="595" alt="chrome_kjhWCMAphI" src="https://github.com/user-attachments/assets/e263e68b-5876-4ac0-b0c8-0555d072da4f" />
+<img width="575" alt="chrome_pMdacbj7jF" src="https://github.com/user-attachments/assets/388daadc-9540-40d0-b738-be61792f4a21" />
+<img width="565" alt="chrome_o058qOMuYs" src="https://github.com/user-attachments/assets/71c0acf5-1644-4d04-8ffa-6c7e4ad987a2" />
+<img width="554" alt="chrome_8H9rxsoNnC" src="https://github.com/user-attachments/assets/53244f59-5639-49bc-9323-aacc7f6d96c3" />
+<img width="566" alt="chrome_3XnWJOP8Lh" src="https://github.com/user-attachments/assets/84994b89-d935-4cbd-a0e2-974d717241c5" />
+<img width="493" alt="chrome_H78Ek0G2TD" src="https://github.com/user-attachments/assets/c571d5ba-f327-465e-bff0-96df9a45b37c" />
+<img width="511" alt="chrome_XTkuwLrPUl" src="https://github.com/user-attachments/assets/f4e53838-3ffe-46c6-890e-106056fa1054" />
+<img width="292" alt="chrome_3JZhn8zzsJ" src="https://github.com/user-attachments/assets/885c3366-7a77-480c-9f90-ffd3bca1e2d0" />
+<img width="482" alt="chrome_2mteCiT38K" src="https://github.com/user-attachments/assets/9c94ce5b-04ae-4155-bc45-949e29e78a3a" />
+<img width="554" alt="chrome_YId4Cy2p8F" src="https://github.com/user-attachments/assets/5a942942-ba04-4c62-b18d-df5ca6de7a88" />
+<img width="560" alt="chrome_RibfS6qkav" src="https://github.com/user-attachments/assets/c7bd0a75-8f6c-45f2-9189-688b0e26b2ab" />
+<img width="608" alt="chrome_BWwveoVwV8" src="https://github.com/user-attachments/assets/a4a9fedc-bcf7-4c75-a369-ce4ff7d6141f" />
+![images (3)](https://github.com/user-attachments/assets/6e47a6ee-5799-48e7-9779-3df8999e2aaa)
+![2-Figure1-1](https://github.com/user-attachments/assets/0c8456b7-7fa4-4d68-905b-0cdcd8ca3971)
+![1_sQHhxW_QoM7L-DvC6rOTxA](https://github.com/user-attachments/assets/3636bd27-682a-4296-abae-5f4aab2888a7)
+![Untitled_design_13_thumb](https://github.com/user-attachments/assets/750785a7-0492-4035-a65d-6d69dbe6e209)
+<img width="902" alt="python_56dAEshmd0" src="https://github.com/user-attachments/assets/4bb02aa9-9235-4585-a872-46d0ae772729" />
+<img width="902" alt="python_UQ9DKdajVf" src="https://github.com/user-attachments/assets/07737b7d-d316-4381-9378-e83cce4d6635" />
+<img width="902" alt="python_lxIS310M5b" src="https://github.com/user-attachments/assets/bb34bf3e-7d6a-482c-8ea0-7e16c1308ab4" />
+<img width="902" alt="python_eZxDBiXllI" src="https://github.com/user-attachments/assets/3c9ecee0-b8dc-4ff3-88b4-d93baf8dace1" />
+<img width="902" alt="python_yAEatXivFK" src="https://github.com/user-attachments/assets/e5fa9e13-1e32-4423-be3a-78ee74f2bcc1" />
+<img width="329" alt="Code_CS4h3IduMh" src="https://github.com/user-attachments/assets/eae10c16-f39c-46f1-8aff-9274af23814d" />
+<img width="403" alt="Code_6ApGwEQrHj" src="https://github.com/user-attachments/assets/f88cee96-378e-482b-a184-20bffb0ab52a" />
+<img width="668" alt="chrome_tFx5ems39O" src="https://github.com/user-attachments/assets/c80d4fc5-881d-4382-9481-dabfff92881b" />
+<img width="634" alt="chrome_39TsgteqkI" src="https://github.com/user-attachments/assets/95a67e6f-6826-4f25-8554-4d9d46ca7703" />
+<img width="658" alt="chrome_NV5LkWy3N9" src="https://github.com/user-attachments/assets/32c0c14a-6d1b-4c13-b587-ffac7e6a4025" />
+
+![Recife](https://github.com/user-attachments/assets/cecda6be-5cef-4e1e-aafb-4a1c77d4e6ac)
+![Guarulhos](https://github.com/user-attachments/assets/730efe43-f31f-46a8-be33-c6cf25334fbf)
+![Santa BÃ¡rbara d'Oeste](https://github.com/user-attachments/assets/2acb2a9d-6050-4a03-a1d7-772a7b612085)
+<img width="651" alt="chrome_bsmOVugfan" src="https://github.com/user-attachments/assets/6b338fac-5398-47eb-8ba8-d413eb816f7e" />
+<img width="612" alt="chrome_c2RSCNxbvT" src="https://github.com/user-attachments/assets/9eb7fa28-f281-428a-b842-abd354ec10aa" />
+<img width="652" alt="chrome_ftdcbuqfB5" src="https://github.com/user-attachments/assets/05dab4a6-8609-4743-8a80-c176a065ad00" />
+<img width="623" alt="chrome_CJYV0auBgS" src="https://github.com/user-attachments/assets/a8fc34b2-e453-45cb-8108-753dad032bfd" />
 
 
+<img width="564" alt="chrome_xq42ciniJh" src="https://github.com/user-attachments/assets/77930dc0-fe13-49d0-ab66-49fbe0cecac8" />
+<img width="575" alt="chrome_kQ1TgWpNA4" src="https://github.com/user-attachments/assets/f35a0eff-32ca-4d29-9da3-2ee964a14c68" />
+<img width="233" alt="chrome_WJwmzCHUxI" src="https://github.com/user-attachments/assets/79fdcd1f-ace2-4fc6-92f4-6a912eacaf0e" />
+![modelo_venda-produto-por-cidade-previsao h5](https://github.com/user-attachments/assets/58c4a864-b997-434d-af5c-9f92473a0d68)
+![modelo_venda h5](https://github.com/user-attachments/assets/6a79da8d-6d89-4bf3-8df2-b573c297a99b)
+<img width="282" alt="chrome_GXhHikaaiU" src="https://github.com/user-attachments/assets/51074a86-f2ab-427b-8929-0025f22d0e5a" />
+<img width="1020" alt="chrome_ob0MIJ2yUr" src="https://github.com/user-attachments/assets/eccf7470-9163-4749-8600-d681ca76c01a" />
+![modelo_segmentacao_vendas h5](https://github.com/user-attachments/assets/f7c0f1b3-dfe9-4da0-9119-fce0494c6ee1)
+<img width="935" alt="chrome_bugzgRaFxJ" src="https://github.com/user-attachments/assets/7e5e0d9e-9475-417c-86df-1a3e9af74b67" />
+![saved_model keras](https://github.com/user-attachments/assets/8976f5e6-bfa1-464b-a56d-d73ddfd3154b)
+![saved_model keras (1)](https://github.com/user-attachments/assets/5e6ff586-8dcc-4d4a-9a84-a880f8dc2f4b)
 
+<img width="423" alt="chrome_RrWRYN1KM6" src="https://github.com/user-attachments/assets/cbf4c8ed-1ede-4d13-8123-300d31dd2a60" />
+<img width="602" alt="chrome_gsDEXJ3DBD" src="https://github.com/user-attachments/assets/49b4dae0-763e-4feb-9059-0a0926d4b1ab" />
 
+<img width="596" alt="SumatraPDF_W5AQ8MUHAp" src="https://github.com/user-attachments/assets/c6fb25a2-a7bb-4359-9627-4c329cc7d7e4" />
 
+<img width="1169" alt="chrome_MGAjPwYcOr" src="https://github.com/user-attachments/assets/ab66e0db-4f37-4efc-ae70-163a60e83478" />
+<img width="1160" alt="chrome_DcdK2baXaT" src="https://github.com/user-attachments/assets/da10cb64-5912-4aa0-9adc-ba19e0a727ae" />
 
+![screencapture-127-0-0-1-8050-2024-08-27-10_19_43](https://github.com/user-attachments/assets/c00295f8-c56c-490b-a49a-8341e8243d61)
+![screencapture-127-0-0-1-8050-2024-08-27-10_21_18](https://github.com/user-attachments/assets/194163ca-13d6-4067-83c7-e52f45264887)
+![newplot](https://github.com/user-attachments/assets/610f3010-42f9-4f74-a423-c6e208c698d1)
+![newplot (1)](https://github.com/user-attachments/assets/a7ef0e44-cb28-417c-9dfa-fc1e6b0fbb8b)
 
-
-
-
-
+![SumatraPDF_9AsYLdkhIO](https://github.com/user-attachments/assets/cabd5d84-6e2a-4b62-985f-34c861791fb1)
+![SumatraPDF_JSCSx3lNka](https://github.com/user-attachments/assets/3b46632f-37f1-469e-93fe-cbb4e8cb8029)
+![SumatraPDF_O3FNpm6wLL](https://github.com/user-attachments/assets/a2f2b5e9-4264-4e3e-99a4-53331aa6b26b)
+![SumatraPDF_hsMNTsvy25](https://github.com/user-attachments/assets/cd7849c6-ac40-45f1-b217-3d580373c9ed)
+![SumatraPDF_7TSuTz6dYH](https://github.com/user-attachments/assets/e665b5f3-142b-4856-bb38-88c8dac6a569)
+![SumatraPDF_RLk96sn8JT](https://github.com/user-attachments/assets/4708ca46-b104-4973-8b9c-f06c91ac9878)
 
 
 
